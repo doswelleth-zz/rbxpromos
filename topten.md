@@ -1,12 +1,10 @@
-###### [Back](http://www.rbxpromos.club/)
-
 # Top Ten Games This Week
 
 ## DISCLAIMER: These Are Not My Favorite Games. These Were Rated By Their Growth in Popularity And Criticism Over The Last Week.
 
-## 1. [Jailbreak By asimo3089 And badcc] (https://www.roblox.com/games/1324335398/EVENT-SOON-Famous-People-Simulator)
+## 1. Jailbreak By asimo3089 And badcc https://www.roblox.com/games/1324335398/EVENT-SOON-Famous-People-Simulator
 
-## 2. Phantom Forces By StyLIS STudios https://www.roblox.com/games/292439477/Phantom-Forces
+## 2. [Phantom Forces] (https://www.roblox.com/games/292439477/Phantom-Forces) By StyLIS STudios 
 
 ## 3. Tiffany Mayumi's Revenge 3 By Meme Productions https://www.roblox.com/games/1375379359/Tifany-Mayumis-Revenge-3
 

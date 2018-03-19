@@ -1,6 +1,6 @@
 # Top Ten Games
 
-## 1. Jailbreak
+## 1.
 
 ## 2.
 

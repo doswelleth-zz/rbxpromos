@@ -6,9 +6,9 @@
 
 ## 2. [Phantom Forces](https://www.roblox.com/games/292439477/Phantom-Forces) By StyLIS STudios 
 
-## 3. [Tiffany Mayumi's Revenge 3](https://www.roblox.com/games/1375379359/Tifany-Mayumis-Revenge-3) By Meme Productions https://www.roblox.com/games/1375379359/Tifany-Mayumis-Revenge-3
+## 3. [Tiffany Mayumi's Revenge 3](https://www.roblox.com/games/1375379359/Tifany-Mayumis-Revenge-3) By Meme Productions 
 
-## 4. [Pokemon Brick Bronze](https://www.roblox.com/games/306964494/8th-Gym-Pokemon-Brick-Bronze-Beta) By Pokemon Brick Bronze Version https://www.roblox.com/games/306964494/8th-Gym-Pokemon-Brick-Bronze-Beta
+## 4. [Pokemon Brick Bronze](https://www.roblox.com/games/306964494/8th-Gym-Pokemon-Brick-Bronze-Beta) By Pokemon Brick Bronze Version 
 
 ## 5. [Royale High School](https://www.roblox.com/games/735030788/Royale-High) By callmehbob 
 

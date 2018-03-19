@@ -1,12 +1,12 @@
 # Top Ten Games This Week
 
-## DISCLAIMER: These Are Not My Favroite Games. These Were Rated By Their Growth in Popularity And Criticism Over The Last Week.
+## DISCLAIMER: These Are Not My Faovrite Games. These Were Rated By Their Growth in Popularity And Criticism Over The Last Week.
 
 ## 1. Jailbreak By asimo3089 And badcc https://www.roblox.com/games/1324335398/EVENT-SOON-Famous-People-Simulator
 
 ## 2. Phantom Forces By StyLIS STudios https://www.roblox.com/games/292439477/Phantom-Forces
 
-## 3. Tifany Mayumi's Revenge 3 By Meme Productions https://www.roblox.com/games/1375379359/Tifany-Mayumis-Revenge-3
+## 3. Tiffany Mayumi's Revenge 3 By Meme Productions https://www.roblox.com/games/1375379359/Tifany-Mayumis-Revenge-3
 
 ## 4. Pokemon Brick Bronze By Pokemon Brick Bronze Version https://www.roblox.com/games/306964494/8th-Gym-Pokemon-Brick-Bronze-Beta
 

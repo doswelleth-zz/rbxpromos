@@ -1,7 +1,6 @@
+###### [Back](http://www.rbxpromos.club/)
 
 # Top Ten Games
-
-###### [Back](http://www.rbxpromos.club/)
 
 ## 1.
 

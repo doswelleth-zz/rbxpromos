@@ -10,7 +10,7 @@
 
 # Why Us?
 
-## We Are Child-Run ANd The Data Is Dependent On The Community.
+## We Are Child-Run And The Data Is Owned And Changed By The Community, So You Tell If The Data Is Real Or Fake
 
 # Terms Of Service
 
@@ -35,3 +35,4 @@
 ### Randomly Ban Users
 
 ## If You See An Admin Doing These things, Message RunningInTheBrush On Discord.
+Fixed Grammer

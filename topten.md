@@ -1,22 +1,20 @@
 # Top Ten Games This Week
 
-## Say Happy Birthday To My Friend T!
-
 ## By RunningInTheBrush
 
 ## DISCLAIMER: These Are Not My Favorite Games. These Were Rated By Their Growth in Popularity And Criticism Over The Last Week.
 
 ## This Page Updates Every MONDAY Or TUESDAY.
 
-## Last Update: 3/26/18 10:30 AM
+## Last Update: 4/1/18 10:30 AM (April Fools! It's 2:58 PM)
 
-## 1. [Airplane Simulator](https://www.roblox.com/games/510497520/Airplane-Simulator-2017#!/about) By Derpie Studios
+## 1. [Action! (BETA)](https://www.roblox.com/games/1069607513/Action-BETA) By SirMing
 
-## 2. [Phantom Forces](https://www.roblox.com/games/292439477/Phantom-Forces) By StyLIS STudios 
+## 2. [(ALIENS!) 👽 Jailbreak](https://www.roblox.com/games/292439477/Phantom-Forces) By Badimo
 
-## 3. [Tiffany Mayumi's Revenge 3](https://www.roblox.com/games/1375379359/Tifany-Mayumis-Revenge-3) By Meme Productions 
+## 3. [Egg Hunt 2018: The Great Yolktales](https://www.roblox.com/games/1441335069/Egg-Hunt-2018-The-Great-Yolktales) By Fifteam
 
-## 4. [Pokemon Brick Bronze](https://www.roblox.com/games/306964494/8th-Gym-Pokemon-Brick-Bronze-Beta) By Pokemon Brick Bronze Version 
+## 4. [Phantom Forces](https://www.roblox.com/games/292439477/Phantom-Forces) By StyLIS STudios
 
 ## 5. [Hexaria](https://www.roblox.com/games/913614076/Hexaria-V0-62) By Bitsquid Games
 
@@ -31,3 +29,11 @@
 ## 10. [Booga Booga](https://www.roblox.com/games/1262182609/STORMS-Booga-Booga) By Soybeen 
 
 ## Which One Is YOUR Favorite? ( ͡° ͜ʖ ͡°)
+
+# Top 3 Games Of The Week
+
+## 1: [Action! (BETA)](https://www.roblox.com/games/1069607513/Action-BETA) By SirMing Took A Great Rise As It Hopped To The Top With Great Animation, Great Building, And A Great Expirence In General!
+
+## 2: [Jailbreak](https://www.roblox.com/games/292439477/Phantom-Forces) By Badimo EXPLODED With Their New Update: ALIENS! This Update Features A UFO, A New Map, And A ALIEN ATTACK!
+
+## 3: Every Year, Roblox Has An Egg Hunt Where They Choose A Developer/Development Team To Make AN Egg Hunt Game. This Time, It Was Made By Fifteam, With The Game [Egg Hunt 2018: The Great Yolktales](https://www.roblox.com/games/1441335069/Egg-Hunt-2018-The-Great-Yolktales) ! This Features Eggs Of All Shapes ANd Sizes, Diffrent Maps, And A Bookworm! Wait... What?

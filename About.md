@@ -1,5 +1,3 @@
-##### [Back](rbxpromos.club)
-
 # About
 
 ## [rbxpromos](rbxpromos.club) is a website based off the gaming platform [Roblox](www.roblox.com), where you can get your games promoted.

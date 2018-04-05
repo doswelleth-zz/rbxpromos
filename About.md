@@ -33,4 +33,3 @@
 ### Randomly Ban Users
 
 ## If You See An Admin Doing These things, Message RunningInTheBrush On Discord.
-Fixed Grammer

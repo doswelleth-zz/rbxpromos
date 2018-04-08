@@ -1,12 +1,12 @@
 # Recommended Game Spotlight
 
-## [Treasure Hunt Simulator](https://www.roblox.com/games/1345139196/Treasure-Hunt-Simulator) Has Been Hanging Around The Popular Page, But It Really Hasent Got Much Attention From Any Roblox News Channels That It Deserves!
+## [Welcome to Bloxburg](https://www.roblox.com/games/185655149/Welcome-to-Bloxburg-BETA) Just Shot Up The Popular Page, Almost Passing Jailbreak, And It Really Deserves A Reward!
 
-## This Popular Simulator Game Is AboutFinding Tresaure And Upgrading Up Do the Point Where You NUKE Sand!
+## This Game Has Always Been Disliked Because You Must Pay To Get In, But Once The 25 Robux Is Taken From Your Account, It's Really Worthwile!
 
-## And With The New Black Hole Shovel And More Pets Update, You Can DESTROY The Competition!
+## In This Game You Can Build Your Dream House, Get A Car, And Hang Out At The Club!
 
-## Some Other Features Of This Game Include Gamepasses, A Well-Scripted Map And Your Very own Private Island!
+## Some Other Features Of This Game Include Cooking Food, Well Scripted Jobs, And More!
 
 
 

@@ -18,7 +18,7 @@
 
 ## 5. [Robloxian Highschool](https://www.roblox.com/games/447452406/Robloxian-Highschool) By Robloxian High School Group
 
-## 6. [MeepCity]((https://www.roblox.com/games/370731277/MeepCity) By alexnewtron
+## 6. [MeepCity](https://www.roblox.com/games/370731277/MeepCity) By alexnewtron
 
 ## 7. [One Piece Bizarre Adventures](https://www.roblox.com/games/1438054158/One-Piece-Bizarre-Adventures) By Bizarre Adventures
 

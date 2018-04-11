@@ -4,7 +4,7 @@
 
 ## This Imagititive Game Sets The Scene Of A High School Life Where You Can Chill With Friends, Get A Car, And Hand Out!
 
-## It's Newest Update Includes Chemistry, WHere You Can Mix Chemicals To Create Suprising Results
+## It's Newest Update Includes Chemistry, Where You Can Mix Chemicals To Create Suprising Results
 
 ## Players Say That Thier Favroite Parts Of The Game Are Avatar Editing, Making Friends, And Chillin At The Club!
 

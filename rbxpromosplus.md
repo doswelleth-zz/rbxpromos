@@ -1,11 +1,11 @@
 # Introducing Subscriptions
 
-### Hello RBX Promos Community!
+## Hello RBX Promos Community!
 
-### We are very pleased to announce [RBX Promo+ Subscriptions](https://example.com)!
+### We are very pleased to announce **RBX Promo+ Subscription**
+### [Sign up today](https://example.com) to receive early updates on new games, invitations to the RBX Promo Party and more! 
 
-### Sign up today to receive early updates on new games, invitations to the RBX Promo Party and more! 
 
-### Happy gaming!
+### Happy Gaming!
 
-#### RunningInTheBrush
+#### ––RunningInTheBrush

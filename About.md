@@ -4,6 +4,12 @@
 
 ## Owned By Roblox Player [RunningInTheBrush](https://www.roblox.com/users/142023054/profile), Message Him If You Think The Top Ten Games Page Is Wrong.
 
+# Important Links
+
+## Twitter: https://twitter.com/PromosRbx Or Click [Here.](https://twitter.com/PromosRbx)
+
+## Youtube: https://www.youtube.com/channel/UCGYYxsox_158l3JwISUZrTA?view_as=subscriber Or Click [Here.](https://www.youtube.com/channel/UCGYYxsox_158l3JwISUZrTA?view_as=subscriber)
+
 # Meet The Team
 
 # Developers:

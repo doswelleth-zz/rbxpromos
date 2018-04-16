@@ -1,11 +1,7 @@
 # Introducing Subscriptions
 
-## Hello RBX Promos Community!
+## Coming Soon ;)
 
-### We are very pleased to announce **RBX Promo+ Subscription**
-### Sign up today to receive early updates on new games, invitations to the RBX Promo Party and more! 
+## Check the Forum for more info
 
-
-### Happy Gaming!
-
-#### ––David
+––David

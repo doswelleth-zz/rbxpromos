@@ -1,12 +1,11 @@
 # Recommended Game Spotlight
 
-## [SharkBite](https://www.roblox.com/games/734159876/SharkBite-Atlantis) Is Amazingly Scripted, Amazingly Built, And Amazingly Scary!
+## Robloxian Highschool](https://www.roblox.com/games/447452406/Robloxian-Highschool) Has Made It As Second To Reach It's Second Spotlight, And As It's Stats Are Not Always Skyrocketing, It's Very Impressive!
 
-## In This Game You Get To Go On Tons Of Diffrent Boats, And Try To Survive A Shark That Wants Not Your Ship, But You!
+## In This Game You Can Roleplay As A Highschool Student, And Make Friends!
 
-## This Game Was First Thought Of By Abracadabra, And He Is Known For Being The Most Humored Dev On Roblox!
+## One Of The Most Favroited Parts About This Game Is The Club, Where You Can Party All Night!
 
-## Other Features Of This Game Include A Flare Gun, Jetskis And A ROCKET LAUNCHERRRR!!!!
-
+## And With The New Sports Car, You Can Speed Around The Map At Top Speed!
 
 

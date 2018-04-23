@@ -1,11 +1,11 @@
 # Recommended Game Spotlight
 
-## Robloxian Highschool](https://www.roblox.com/games/447452406/Robloxian-Highschool) Has Made It As Second To Reach It's Second Spotlight, And As It's Stats Are Not Always Skyrocketing, It's Very Impressive!
+## This Spotlight Today Is Dedicated To A Popuar Game That We Recently Lost.
 
-## In This Game You Can Roleplay As A Highschool Student, And Make Friends!
+## On April 21, 2018, Lando6400 Tweeted That The Popular Game Pokemon Brick Bronze Project Is Discontinued. 
 
-## One Of The Most Favroited Parts About This Game Is The Club, Where You Can Party All Night!
+## In This Game, You Could Go on A Pokemon Adventure, But That Is All Lost Now.
 
-## And With The New Sports Car, You Can Speed Around The Map At Top Speed!
+## May We All Remember This Game In Our Hearts, As One Of The Most Favroited Games On Roblox.
 
 

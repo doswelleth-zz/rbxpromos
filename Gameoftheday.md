@@ -1,11 +1,9 @@
 # Recommended Game Spotlight
 
-## [Four Corners](https://www.roblox.com/games/1599819205/Four-Corners-NEW) Was Just Recently Made, And It Shot To The Top, Passing Many Roblox Games!
+## [Cursed Islands](https://www.roblox.com/games/990566015/Cursed-Islands) Puts A Whole New Meaning To 4 Corners!
 
-## In This Game, It's Four Corners EXTREME, And The Intenseness Is On!
+## In This Game, There Are Multiple Islands, And Evvery Few Seconds, The Water Will Rise And Some Of These Islands Will Be Destroyed With CRAZY Disasters, Like Jail, A Volcano, And A Hungy Octopus! 
 
-## Trust Me, You Don't Even Need To Spend Robux, Get Free Gems By Redeeming Codes On the Developer's Twitter!
+## This Game Is Incredibly Well Scripted, And It Is Always Fast!
 
-## Other Features Of This Game Include Lave, A Very Nice-Looking Map, And A HOVERBOARDDD!!!
-
-
+## Some Other Features Of This Game Include An Amazing Map, Great Looking Textures, And Lots of OOF's!

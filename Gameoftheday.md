@@ -7,3 +7,6 @@
 ## This Game Is Incredibly Well Scripted, And It Is Always Fast!
 
 ## Some Other Features Of This Game Include An Amazing Map, Great Looking Textures, And Lots of OOF's!
+
+## ![GitHub Logo](/images/logo.png)
+## Format: ![Alt Text](url)

@@ -8,4 +8,4 @@
 
 ## Some Other Features Of This Game Include An Amazing Map, Great Looking Textures, And Lots of OOF's!
 
-![Drag Racing](Dragster.jpg)
+![Image Of Cursed Islands](gamespotlight.png)

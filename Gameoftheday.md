@@ -8,5 +8,6 @@
 
 ## Some Other Features Of This Game Include An Amazing Map, Great Looking Textures, And Lots of OOF's!
 
-![cursed island](https://user-images.githubusercontent.com/25995735/39450649-11127640-4c9a-11e8-9c97-e75b13ee8dec.jpg)
+![gamespotlight](https://user-images.githubusercontent.com/37088658/39450989-27d6a76a-4c9b-11e8-821c-051dc0c52125.png)
+
 

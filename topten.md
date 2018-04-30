@@ -2,9 +2,7 @@
 
 ## By RunningInTheBrush
 
-## NOTE: This Page Will not Be Updated Today. We're Putting All our Time Into Subscribers, But This Will Update When We Have Time!
-
-## DISCLAIMER: These Are Not My Favorite Games. These Were Rated By Their Growth in Popularity And Criticism Over The Last Week.
+#### DISCLAIMER: These Are Not My Favorite Games. These Were Rated By Their Growth in Popularity And Criticism Over The Last Week.
 
 ## This Page Updates Every MONDAY Or TUESDAY.
 
@@ -31,6 +29,7 @@
 ## 10. [(🍭CANDY) Mining Simulator](https://www.roblox.com/games/1417427737/CANDY-Mining-Simulator) By Runray Rumble
 
 ## Which One Is YOUR Favorite? ( ͡° ͜ʖ ͡°)
+
 
 # Top 3 Games Of The Week
 

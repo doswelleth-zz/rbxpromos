@@ -1,20 +1,20 @@
 # Recommended Game Spotlight
 
-## [Cursed Islands](https://www.roblox.com/games/990566015/Cursed-Islands) Puts A Whole New Meaning To 4 Corners!
+## [Island Royale](https://www.roblox.com/games/1320186298/NEW-Island-Royale-Testing) Is A Game Of Full Power, And It's Using It!
 
-## In This Game, There Are Multiple Islands, And Evvery Few Seconds, The Water Will Rise And Some Of These Islands Will Be Destroyed With CRAZY Disasters, Like Jail, A Volcano, And A Hungy Octopus! 
+## This Amazing, Well Scripted Game Is A Remake Of The Popular Battle Royale Game Fortnite, And It's So Well Scripted I Almost Couldent Tell The 2 Apart!
 
-## This Game Is Incredibly Well Scripted, And It Is Always Fast!
+## Although It's 100 Robux To Play, It Pays Off, And The Game Almost NEVER Lags Out!
 
-## Some Other Features Of This Game Include An Amazing Map, Great Looking Textures, And Lots of OOF's!
+## Some Other Features Of This Game Include An Amazing Map, Building, And Lots Of Pressure!
 
-![gamespotlight](https://user-images.githubusercontent.com/37088658/39450989-27d6a76a-4c9b-11e8-821c-051dc0c52125.png)
+![robloxscreenshot20180505_192242063](https://user-images.githubusercontent.com/37088658/39668408-fe73ba6c-509a-11e8-8ef6-9ae88ac8455a.png)
 
-![robloxscreenshot20180430_173242750](https://user-images.githubusercontent.com/37088658/39451497-dab84e3c-4c9c-11e8-9617-c2a8db8e7ee8.png)
+![robloxscreenshot20180505_191952216](https://user-images.githubusercontent.com/37088658/39668413-1b7d096a-509b-11e8-87c5-0efdc9c037f4.png)
 
-![robloxscreenshot20180430_173231760](https://user-images.githubusercontent.com/37088658/39451540-f704e06e-4c9c-11e8-8f63-a51b86c4490d.png)
+![robloxscreenshot20180505_192122353](https://user-images.githubusercontent.com/37088658/39668417-24d40ab8-509b-11e8-92bd-fb25d0618ac1.png)
 
-![robloxscreenshot20180430_172918495](https://user-images.githubusercontent.com/37088658/39451569-1289b044-4c9d-11e8-822d-44e52ae20bf9.png)
+![robloxscreenshot20180505_192223123](https://user-images.githubusercontent.com/37088658/39668420-31d9667c-509b-11e8-9bb3-66b1fbb01728.png)
 
 
 

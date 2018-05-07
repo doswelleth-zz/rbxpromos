@@ -1,20 +1,20 @@
 # Recommended Game Spotlight
 
-## [Island Royale](https://www.roblox.com/games/1320186298/NEW-Island-Royale-Testing) Is A Game Of Full Power, And It's Using It!
+## [Dragons Life](https://www.roblox.com/games/537991124/Dragons-Life-Testing) Is A Game Made By Shyfoox Studios, And We All Know How That Goes: Amazing Roleplay, Amazing Scripts, And Realistic Morphs!
 
-## This Amazing, Well Scripted Game Is A Remake Of The Popular Battle Royale Game Fortnite, And It's So Well Scripted I Almost Couldent Tell The 2 Apart!
+## This Amazing, Well Scripted Game Is Still In Testing, But It's Still A Main Place For Roleplayers To Hang Out!
 
-## Although It's 100 Robux To Play, It Pays Off, And The Game Almost NEVER Lags Out!
+## And With the Neon Colors Gamepass, Your Dragon Can Be The Life Of The Party!
 
-## Some Other Features Of This Game Include An Amazing Map, Building, And Lots Of Pressure!
+## Some Other Features Of This Game Include An Amazing Map, Emotes, And Cute Baby Dragons!
 
-![robloxscreenshot20180505_192242063](https://user-images.githubusercontent.com/37088658/39668408-fe73ba6c-509a-11e8-8ef6-9ae88ac8455a.png)
+![dragons life 4](https://user-images.githubusercontent.com/37088658/39726953-cc1cc2a4-521e-11e8-82fc-7ec9c0243cbf.png)
 
-![robloxscreenshot20180505_191952216](https://user-images.githubusercontent.com/37088658/39668413-1b7d096a-509b-11e8-87c5-0efdc9c037f4.png)
+![dragons life 2](https://user-images.githubusercontent.com/37088658/39726975-e46be538-521e-11e8-9dc1-6813a5f202c0.png)
 
-![robloxscreenshot20180505_192122353](https://user-images.githubusercontent.com/37088658/39668417-24d40ab8-509b-11e8-92bd-fb25d0618ac1.png)
+![dragons life 1](https://user-images.githubusercontent.com/37088658/39726984-efc5c174-521e-11e8-8903-ef84f2938796.png)
 
-![robloxscreenshot20180505_192223123](https://user-images.githubusercontent.com/37088658/39668420-31d9667c-509b-11e8-9bb3-66b1fbb01728.png)
+![dragons life 3](https://user-images.githubusercontent.com/37088658/39726998-fdc29e78-521e-11e8-92bf-a7f654555ce0.png)
 
 
 

@@ -8,6 +8,9 @@
 
 ## Some Other Features Of This Game Include An Amazing Map, Emotes, And Cute Baby Dragons!
 
+## (Please Thank The Roblox User [Omgitskittykitty00](https://www.roblox.com/users/203477235/profile) For Getting These Images For Us!)
+
+
 ![dragons life 4](https://user-images.githubusercontent.com/37088658/39726953-cc1cc2a4-521e-11e8-82fc-7ec9c0243cbf.png)
 
 ![dragons life 2](https://user-images.githubusercontent.com/37088658/39726975-e46be538-521e-11e8-9dc1-6813a5f202c0.png)

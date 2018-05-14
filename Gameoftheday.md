@@ -1,23 +1,21 @@
 # Recommended Game Spotlight
 
-## [Dragons Life](https://www.roblox.com/games/537991124/Dragons-Life-Testing) Is A Game Made By Shyfoox Studios, And We All Know How That Goes: Amazing Roleplay, Amazing Scripts, And Realistic Morphs!
+## [Doomspire Brickbattle](https://www.roblox.com/games/1215581239/Doomspire-Brickbattle) Somehow Shot To The Top, But Because Being A Classic ROBLOX Game, We HAD To Sponsor It!
 
-## This Amazing, Well Scripted Game Is Still In Testing, But It's Still A Main Place For Roleplayers To Hang Out!
+## This Game Is All About Destruction, With Four Towers, Four Teams, And Rockets!
 
-## And With the Neon Colors Gamepass, Your Dragon Can Be The Life Of The Party!
+## And With The Tips Shown in The Description, You Can be Flying Across The Map In No Time!
 
-## Some Other Features Of This Game Include An Amazing Map, Emotes, And Cute Baby Dragons!
+## Some Other Features Of This Game Include Strong Scripts, Classic ROBLOX Items, And Intenseness!
 
-## (Please Thank The Roblox User [Omgitskittykitty00](https://www.roblox.com/users/203477235/profile) For Getting These Images For Us!)
+![robloxscreenshot20180514_174818400](https://user-images.githubusercontent.com/37088658/40027938-512fd766-57aa-11e8-91ad-a6d593b9fc17.png)
 
+![robloxscreenshot20180514_174825699](https://user-images.githubusercontent.com/37088658/40027950-5993d7c2-57aa-11e8-9ae0-eaaa97d1873b.png)
 
-![dragons life 4](https://user-images.githubusercontent.com/37088658/39726953-cc1cc2a4-521e-11e8-82fc-7ec9c0243cbf.png)
+![robloxscreenshot20180514_174919413](https://user-images.githubusercontent.com/37088658/40027962-6b4bed92-57aa-11e8-82fb-359d5282a29c.png)
 
-![dragons life 2](https://user-images.githubusercontent.com/37088658/39726975-e46be538-521e-11e8-9dc1-6813a5f202c0.png)
+![robloxscreenshot20180514_174955107](https://user-images.githubusercontent.com/37088658/40027970-74a2fb56-57aa-11e8-8007-0a24ba7e13a4.png)
 
-![dragons life 1](https://user-images.githubusercontent.com/37088658/39726984-efc5c174-521e-11e8-8903-ef84f2938796.png)
-
-![dragons life 3](https://user-images.githubusercontent.com/37088658/39726998-fdc29e78-521e-11e8-92bf-a7f654555ce0.png)
 
 
 
